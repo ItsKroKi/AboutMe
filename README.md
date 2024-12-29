@@ -4,13 +4,9 @@
 - 📫 How to reach me : itsmekroki@gmail.com or https://discord.gg/4pUWXnwp
 - 😄 Pronouns: ItsMeKroKi , Kroki
 Information ❓
-- Gender : He/Him (Male) :identification_card: 
 - Age is 16 : :technologist:  - Happy Birthday - July 27, 2008 :partying_face: 
 - Place of Residence : UTC +3 (Russia , Moscow ) :watch: 
 # My  Socials :link:   :
-- [ Youtube Profile](https://www.youtube.com/channel/UCul1Bg1ftHbF2tWFyiAyFKA)
-- [Twitch Profile](https://www.twitch.tv/itsmekroki)
-- [Reddit Profile](https://www.reddit.com/user/ItsMeKroKi/)
 - [ Steam](https://steamcommunity.com/profiles/76561199812330583/home)
 - [ GitHub](https://github.com/ItsKroKi)
 - [ TikTok](https://www.tiktok.com/@itskroki)
