@@ -14,13 +14,6 @@
 #  Venge.io Profiles :technologist: 
 -  [ItsMeKroKi](https://social.venge.io/?player#itsmekroki)
 -  [1KROKI](https://social.venge.io/?player#1KROKI)
--  [KROK!](https://social.venge.io/?player#KROK!)
--  [KROKI?](https://social.venge.io/?player#KROKI?)
--  [krokiTV](https://social.venge.io/?player#krokiTV)
-#  Currently Joined Venge Clans :video_game: :busts_in_silhouette: 
-- ItsMeKroKi (member) (RVNG)
-- KROK! (owner) (JERS)
-- 1KROKI (owner) (1K)
 #  Discord Servers :
 https://discord.gg/VfBdJv5WyA OR
 https://discord.gg/9GaeAKWj
