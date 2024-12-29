@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning (no learning 🥲)
 - 📫 How to reach me : itsmekroki@gmail.com or https://discord.gg/4pUWXnwp
 - 😄 Pronouns: ItsMeKroKi , Kroki
-Information ❓
+- Information ❓
 - Age is 16 : :technologist:  - Happy Birthday - July 27, 2008 :partying_face: 
 - Place of Residence : UTC +3 (Russia , Moscow ) :watch: 
 # My  Socials :link:   :
