@@ -6,7 +6,7 @@
 Information ❓
 - Gender : He/Him (Male) :identification_card: 
 - Age is 16 : :technologist:  - Happy Birthday - July 27, 2008 :partying_face: 
-- Place of Residence : GMT +3 (Russia , Moscow ) :watch: 
+- Place of Residence : UTC +3 (Russia , Moscow ) :watch: 
 # My  Socials :link:   :
 - [ Youtube Profile](https://www.youtube.com/channel/UCul1Bg1ftHbF2tWFyiAyFKA)
 - [Twitch Profile](https://www.twitch.tv/itsmekroki)
